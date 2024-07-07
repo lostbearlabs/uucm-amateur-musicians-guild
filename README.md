@@ -12,9 +12,15 @@
 ## July 19, 2024 - Breezy Summer Songs
 
 - Kokomo
-- Margaritaville
+  - UG official: https://tabs.ultimate-guitar.com/tab/the-beach-boys/kokomo-official-3012764 
+  - YouTube: https://www.youtube.com/watch?v=xmr8bEuyQjA 
+- Margaritaville:
+  - UG (ver 2): https://tabs.ultimate-guitar.com/tab/jimmy-buffett/margaritaville-chords-344491 
+  - YouTube: https://www.youtube.com/watch?v=mrF4nF8VUb4 
 - On My Own
   - UG chords (ver 3): https://tabs.ultimate-guitar.com/tab/964049 
+  - YouTube: https://www.youtube.com/watch?v=VjfmP7h3gBw
+
 
 ## June 21, 2024 - 80's
 
