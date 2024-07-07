@@ -8,6 +8,8 @@
   - UG chords: https://tabs.ultimate-guitar.com/tab/the-longest-johns/wellerman-chords-3182162 
 - Dona Nobis Pacem
 - My Life Flows On
+- Take Me Home Country Roads
+  - UG chords: https://tabs.ultimate-guitar.com/tab/john-denver/take-me-home-country-roads-chords-57606 
 
 ## July 19, 2024 - Breezy Summer Songs
 
