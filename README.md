@@ -11,7 +11,17 @@
 - Take Me Home Country Roads
   - UG chords: https://tabs.ultimate-guitar.com/tab/john-denver/take-me-home-country-roads-chords-57606 
 
-## July 19, 2024 - Breezy Summer Songs
+## Friday August 16, 2024, 6:30pm - Strawberries
+
+- Today
+  - UG chords: https://tabs.ultimate-guitar.com/tab/john-denver/today-chords-817807
+  - YouTube (John Denver): https://www.youtube.com/watch?v=u5nyALPgxro
+- White Winter Hymnal
+  - UG chords: https://tabs.ultimate-guitar.com/tab/fleet-foxes/white-winter-hymnal-chords-932697
+  - YouTube (Fleet Foxes): https://www.youtube.com/watch?v=DrQRS40OKNE
+  - YouTube (Pentatonix): https://www.youtube.com/watch?v=o10drRI3VQ0
+
+## Friday July 19, 2024, 6:30pm - Breezy Summer Songs
 
 - Kokomo
   - UG official: https://tabs.ultimate-guitar.com/tab/the-beach-boys/kokomo-official-3012764 
@@ -24,7 +34,7 @@
   - YouTube: https://www.youtube.com/watch?v=VjfmP7h3gBw
 
 
-## June 21, 2024 - 80's
+## Friday June 21, 2024, 6:30pm - 80's
 
 - Overkill
   - UG chords (version 3) - https://tabs.ultimate-guitar.com/tab/men-at-work/overkill-chords-811737 
