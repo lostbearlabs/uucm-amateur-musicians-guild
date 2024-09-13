@@ -11,6 +11,21 @@
 - Take Me Home Country Roads
   - UG chords: https://tabs.ultimate-guitar.com/tab/john-denver/take-me-home-country-roads-chords-57606 
 
+## Friday September 20, 2024, 6:30pm
+
+- Over the Rainbow
+  - UG chords: https://tabs.ultimate-guitar.com/tab/2135261
+  - YouTube (Eva Cassidy): https://www.youtube.com/watch?v=2rd8VktT8xY
+- Rainbow Connection
+  - UG chords: https://tabs.ultimate-guitar.com/tab/misc-soundtrack/the-muppet-movie-rainbow-connection-chords-1181285
+  - YouTube (Kermit the Frog): https://www.youtube.com/watch?v=WS3Lkc6Gzlk
+- Wichita Lineman
+  - UG chords: https://tabs.ultimate-guitar.com/tab/glen-campbell/wichita-lineman-chords-64338
+  - YouTube (Michael Stipe and Patti Smith): https://www.youtube.com/watch?v=XqiRHXgmcQs
+- King of the Road
+  - UG chords: https://tabs.ultimate-guitar.com/tab/roger-miller/king-of-the-road-chords-1486455
+  - YouTube (Roger Miller): https://www.youtube.com/watch?v=L4kvi5IG_KE
+
 ## Friday August 16, 2024, 6:30pm - Strawberries
 
 - Today
